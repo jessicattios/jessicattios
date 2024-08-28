@@ -1,6 +1,6 @@
 - 👋 howdy, i'm jess
-- 👀 i like splatoon and minecraft and uhhhhh uh. uhhh
-- 🌱 i'm learning how to make minecraft resource packs for my friends
+- 👀 i like nintendo
+- 🌱 i'm learning how to make minecraft resource packs for my friends and code websites
 - 💞️ i’m looking to collaborate on nothing i am too busy crying
 - 📫 you can contact me via twitter or discord i'm most active there lmao
 
